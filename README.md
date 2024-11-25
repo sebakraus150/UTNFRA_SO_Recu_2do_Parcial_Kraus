@@ -1,0 +1,2 @@
+# UTNFRA_SO_Recu_2do_Parcial_Kraus
+Recuperatorio segundo parcial AySO
